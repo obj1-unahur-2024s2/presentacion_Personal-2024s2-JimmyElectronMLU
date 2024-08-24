@@ -1,4 +1,4 @@
-![Logo UNAHUR](./assets/UNAHUR.png)
+![Logo UNAHUR](./assets/xd.jpg)
 
 Bienvenidxs a
 # Mi presentación personal 🎉 
