@@ -19,5 +19,5 @@ Me considero una persona tranquila, práctica y confiable, y espero que tengamos
 
 
 ## Links importantes :monocle_face:
-- [x] [Indigno de ser humano](https://www.waldhuter.com.ar/Papel/9788493741372/Indigno+De+Ser+Humano) Libro Favorito.
-- [x] [River Plate](https://www.cariverplate.com.ar/) el mejor.
+- [x] [Indigno de ser humano](https://www.waldhuter.com.ar/Papel/9788493741372/Indigno+De+Ser+Humano), uno de mis libros favoritos.
+- [x] [River Plate](https://www.cariverplate.com.ar/), el mejor.
